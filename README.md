@@ -1,1 +1,1 @@
-the content has been removed
+collaborator changed 
