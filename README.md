@@ -1,1 +1,1 @@
-# for-badge
+the content has been removed
